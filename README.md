@@ -1,1 +1,0 @@
-# hi18nishimura.github.io
